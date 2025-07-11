@@ -2,7 +2,7 @@
 - 👀 I’m interested in Artificial Intelligence, Machine learning , data science
 - 🌱 I’m currently learning Machine learning
 
-- 📫 How to reach me = dont pls
+- 📫 How to reach me = lol
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: lol
 <!---
